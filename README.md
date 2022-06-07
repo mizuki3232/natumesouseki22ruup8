@@ -1,1 +1,0 @@
-# natumesouseki22ruup8
